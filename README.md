@@ -1,5 +1,8 @@
 # 💫 About Me:
-Hi, my name is Stephen; I am simply a Bridge. Oh yeah, I will explain:<br><br>As a Software Engineer: I am passionate about the "Hows" and "Whys" of Software. It has always been my passion to teach the concepts and draw my contentment from the excitement that comes from the comprehension of the concept by others. I am literally grinning writing this... it is indeed a noble pursuit<br>  
+Hi, my name is Stephen; I am simply a Bridge. Oh yeah, I will explain:<br><br>As a Software Engineer: I am passionate about the "Hows" and "Whys" of Software. It has always been my passion to teach the concepts and draw my contentment from the excitement that comes from the comprehension of the concepts by others. I am literally grinning writing this... it is indeed a noble pursuit. And that brings me to my second world<br>
+<br>Communicator/Technical Writer: Technical knowledge can only be transcendental if teachable. So, I love to pen my knowledge down. Simplicity is definitely the ultimate sophistication. So, I make it the ultimate goal. It is quite challenging but the rush of fulfillment after a piece of art is enough motivation for me. Writing is indeed an Art! <br>
+
+
 
 
 ## 🌐 Socials:
