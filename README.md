@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, my name is Stephen; I am simply a Bridge. Oh yeah, I will explain:<br><br>As a Software Engineer: I am passionate about the "Hows" and "Whys" of programming concept<br>  
+Hi, my name is Stephen; I am simply a Bridge. Oh yeah, I will explain:<br><br>As a Software Engineer: I am passionate about the "Hows" and "Whys" of Software. It has always been my passion to teach the concepts and draw my contentment from the excitement that comes from the comprehension of the concept by others. I am literally grinning writing this... it is indeed a noble pursuit<br>  
 
 
 ## 🌐 Socials:
