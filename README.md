@@ -1,10 +1,10 @@
 # 💫 About Me:
-Hi, my name is Stephen; I am simply a Bridge. Oh yeah, I will explain:<br><br>As a Software Engineer: I am passionate about the "Hows" and "Whys" of Software. It has always been my passion to teach the concepts and draw my contentment from the excitement that comes from the comprehension of the concepts by others.<br>
-<br>Communicator/Technical Writer: Technical knowledge can only be transcendental if teachable. So, I love to pen down my knowledge. Simplicity is definitely the ultimate sophistication. So, I make it the ultimate goal. It is quite challenging but the rush of fulfillment after a piece of art is enough motivation for me. Writing is indeed an Art! <br>
-<br>Teacher: Permit me to call this genetics. I have always admired my mother as a high school teacher. And now, I am currently a voluntary lecturer for _C-programming and Introduction to CyberSecurity_ in my local university<br>
+Hi👋, my name is Stephen; I am simply a Bridge. Oh yeah😄, I will explain:<br><br>As a Software Engineer: I am passionate about the "Hows" and "Whys" of Software. It has always been my passion to teach the concepts and draw my contentment from the excitement that comes from the comprehension of the concepts by others.<br>
+<br>Communicator/Technical Writer: Technical knowledge can only be transcendental if teachable. So, I love to pen down my knowledge. Simplicity is definitely the ultimate sophistication. So, I make it the ultimate goal. Though, it is quite challenging but the rush of fulfillment after a piece of art is enough motivation for me. Writing is indeed an Art! <br>
+<br>Teacher: Permit me to call this genetics. I have always admired my mother as a high school teacher. And now, I am currently a voluntary lecturer for _C-programming and Introduction to CyberSecurity courses_ in a local university<br>
 
-<br>Web3 space welcomed me with open arms to fully explore my world:<br>
-<br>Eagle_Eye: ...ensuring web3 space is safer even for your grandPa<br>
+<br>Web3 space welcomed me with open arms to fully explore my world and gave me a mantra😊: Eagle_Eye; ...ensuring web3 space is safer even for your grandPa❤️<br>
+<br><br>
 
 
 
