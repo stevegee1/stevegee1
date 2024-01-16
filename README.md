@@ -4,7 +4,6 @@ Hi👋, my name is Stephen; I am simply a Bridge. Oh yeah😄, I will explain:<b
 <br>Teacher: Allow me to refer to this as genetics. I have always admired my mother as a high school teacher. And now, I am currently a voluntary lecturer for _C-programming and Introduction to CyberSecurity courses_ in a local university<br>
 
 <br>Web3 space welcomed me with open arms to fully explore my world and gave me a mantra😊: Eagle_Eye; ...ensuring web3 space is safer even for your grandPa❤️<br>
-<br>My world is not complete without my dog, Kovan. Hey Github ..._drum roll_... meet [Kovan](https://drive.google.com/file/d/1RYOVw4YrCpOzPhyCe12qr7vwn2Akf7m0/view?usp=drivesdk) <br>
 
 
 
